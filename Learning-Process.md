@@ -17,4 +17,12 @@
 4. Practice at least 20 hours.
     * You want to learn new concept, you spend atleast 20 hours time.
   
-### The major barrier to skill acquisition isn't intellectual, it's emotional.
+### Some actions I want to follow
+1. Active mode for the particular period of time.
+2. Diffused mode some time after completion of active mode.
+3. I want to follow recall technique.
+4. Splitting the skill in smaller parts.
+5. These are the actions, I want to follow for improving learning process.
+
+
+#### The major barrier to skill acquisition isn't intellectual, it's emotional.
